@@ -1,6 +1,6 @@
-### What is? 🤙
+###                                                           What is? 🤙
 
-Meu nome é Priscila e sou estudante de Bacharelado em Ciência e Tecnologia da Universidade Federal de Santa Catarina.
+My name is Priscila and I'm a student of technology at the Federal University of Santa Catarina. 👩‍💻
 
 
 
